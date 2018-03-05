@@ -1,0 +1,2 @@
+# jetencurakestepremierom.sk
+jetencurakestepremierom
